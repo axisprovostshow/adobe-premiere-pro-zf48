@@ -1,4 +1,4 @@
-# 
+# elite Adobe Premiere Pro for macOS Script | compressor + video-stabilization offers the most advanced Adobe Premiere Pro for macOS script, with compressor and video-stabilization.
 
 
 
